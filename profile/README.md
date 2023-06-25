@@ -1,3 +1,3 @@
-## GIA 👋
+## GIA 
 
 https://giaapp.io/
